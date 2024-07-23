@@ -2,7 +2,7 @@
 
 **Author Name:** Ali Hassan\
 **Email:** official.aharain@outlook.com\
-**Website:** https://contra.com/arainofficial \
+**Website:** https://linktr.ee/BI_Studio \
 **Github:** https://github.com/AHArain-analyst 
 
 ## About Dataset
